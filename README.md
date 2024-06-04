@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Danilaniro
-- 👀 I’m interested in graphic design
+- 👀 I’m interested in digital illustrator, photo editing, social posts
 - 🌱 I’m currently learning how to create content for social media
 - 💞️ I’m looking to collaborate on different project 
 - 📫 How to reach me : niro.danila@gmail.com 
